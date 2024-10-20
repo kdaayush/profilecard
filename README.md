@@ -1,2 +1,3 @@
 
-![Screenshot 2024-10-20 231845](https://github.com/user-attachments/assets/f64f53bd-191f-4167-846d-3a55dd997d5e)
+
+<img width="350" alt="profile card" src="https://github.com/user-attachments/assets/c9406d6f-a6f1-49ac-adae-e83ade655169">
